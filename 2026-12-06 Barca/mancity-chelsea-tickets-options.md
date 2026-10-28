@@ -15,6 +15,10 @@ Here are four official hospitality and ticket options for you and your guest to 
   - Food options and private cash/contactless bar available to purchase.
   - Complimentary half-time tea/coffee and matchday program.
 - **Estimated Cost:** ~£200 – £300 per person.
+- **Specific Sample Offers:**
+  1. *1894 Bar / Commonwealth Bar Standard Package:* ~£229 per person (Includes East Stand Level 1 padded seats & lounge access).
+  2. *Manager's Corner Informal Hospitality:* ~£260 per person (Level 2 South-West corner with artisan pizza options and welcome drink).
+  3. *Matchday Member Ticket + Hotel Break:* ~£229+ per person via SportsBreaks (Includes official Tier 3 East Stand ticket + 1-night hotel stay).
 
 ---
 

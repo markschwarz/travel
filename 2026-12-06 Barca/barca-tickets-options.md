@@ -12,6 +12,10 @@ Here are four ticket and hospitality options for you and your guest to experienc
   - Official entry tickets together.
   - Good overall view of the pitch.
 - **Estimated Cost:** Standard La Liga pricing (~€70 – €150 per ticket).
+- **Specific Sample Offers (StubHub / Resale):**
+  1. *Gol 2 Inferior / Gol 1:* ~€149 - €150 per ticket (Standard behind-the-goal seating, side-by-side guaranteed).
+  2. *Córner 2 Superior:* ~€166 - €171 per ticket (Corner view with faster electronic delivery).
+  3. *CAT 3 Official Agency Package:* ~€180 per person (Includes official club agent package with guidebook/extras).
 
 ---
 
